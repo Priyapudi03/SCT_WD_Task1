@@ -1,1 +1,0 @@
-# SCT_WD_Task1
